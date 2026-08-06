@@ -1,4 +1,9 @@
-## Hi there 👋
+## Hi, I'm Roui! 
+⋆.˚ ☼⋆𓇼｡𖦹˙༄.°
+
+Currently learning Python and trying out new things. 𓆝 𓆟 𓆞 𓆝 𓆟
+
+
 
 <!--
 **Hawkkyy/Hawkkyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
