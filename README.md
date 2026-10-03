@@ -1,7 +1,7 @@
 ## Hi, I'm Roui! 
 ⋆.˚ ☼⋆𓇼｡𖦹˙༄.°
 
-Currently learning Python and trying out new things. 𓆝 𓆟 𓆞 𓆝 𓆟
+Currently learning Java and trying out new things. 𓆝 𓆟 𓆞 𓆝 𓆟
 
 
 
